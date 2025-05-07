@@ -1,1 +1,1 @@
-None
+As the team captain,achieved first place football team competition in high school.
